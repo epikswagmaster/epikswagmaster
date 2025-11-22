@@ -1,6 +1,6 @@
-## hi im tge awesome vamp guy:"<img width="2048" height="2048" alt="Untitled144_20251121212629" src="https://github.com/user-attachments/assets/205c6e01-a797-4339-8cac-dbac20d5fe32" />
+## hi ;" <img width="2048" height="2048" alt="Untitled144_20251121212629" src="https://github.com/user-attachments/assets/205c6e01-a797-4339-8cac-dbac20d5fe32" />
 
-digital artist // 17 // skin maker i guess // if we become friends i will most likely chill beside you afk // this page is wip
+i allow inspo, not copying! // c+h always open, i will c+h those with it in their name // dni if you're over 19 or under 15 // if we become friends i will most likely chill beside you afk // this page is wip
 
 
 <!--
