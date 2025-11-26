@@ -4,7 +4,6 @@
 
 [STRAWPAGE](https://epikswagmaster.straw.page)
 
-[meet who i am publicly as an artist](https://deviantart.com/rosebreezie)
 
 **KNOW THIS**
 
@@ -14,7 +13,7 @@
 
 ![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
 
-<sub>i am a very private and anxious person so if you're looking for an "about me" bio i will not really have that.<sub>
+<sub>i am a very private and anxious person so if you're looking for an "about me" bio i will not really have that. I DO HOWEVER HAVE MY INTERESTS AND CHARACTERS IN MY STRAWPAGE :DD<sub>
 
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
