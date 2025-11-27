@@ -1,7 +1,6 @@
-## hi ;"
+## <img width="1500" height="500" alt="Untitled149_20251127185341" src="https://github.com/user-attachments/assets/13572cba-28c3-45a4-ae28-841fd3e73c31" />
 
-<p align="center">
-  <img width="300" height="300" alt="Untitled144_20251121212629" src="https://github.com/user-attachments/assets/205c6e01-a797-4339-8cac-dbac20d5fe32" />
+
 
 [STRAWPAGE](https://epikswagmaster.straw.page)
 
