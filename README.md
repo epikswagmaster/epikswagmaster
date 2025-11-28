@@ -2,8 +2,6 @@
 
 
 
-
-
 [STRAWPAGE](https://epikswagmaster.straw.page)
 
 
