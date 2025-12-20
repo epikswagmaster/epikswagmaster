@@ -7,7 +7,13 @@
 
 <p align="center"> KNOW THIS
 
-<p align="center"><sub>all art on my strawpage belong to me // i allow inspo, NOT copying! // c+h freely if im alone! i find it comforting // i dont want to make friends with people under 15 or over 19
+<p align="center"><sub>//all art on my strawpage belong to me 
+  
+  // i allow inspo, NOT copying! if your pony looks too much like mine, you're just walking around as my character. if you copy my skin and hide/block me, i will still find out. because youre dressed up as MY character.
+  
+  // c+h freely if im alone! i find it comforting 
+  
+  // i dont want to make friends with people under 15 or over 19
 
 
 <img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
