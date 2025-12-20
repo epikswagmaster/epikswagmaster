@@ -9,7 +9,7 @@
 
 <p align="center"><sub>//all art on my strawpage belong to me 
   
-  <sub>// i allow inspo, NOT copying! if your pony looks too much like mine, you're just walking around as my character. if you copy my skin and hide/block me, i will still find out. because youre dressed up as MY character.
+  <sub>// i allow inspo, NOT copying! if your pony looks too much like mine, i may confront you. if you copy my skin and hide/block me, i will still find out. because youre dressed up as MY character.
   
   <sub>// c+h freely if im alone! i find it comforting 
   
