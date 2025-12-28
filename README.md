@@ -5,7 +5,7 @@
 [STRAWPAGE](https://epikswagmaster.straw.page)
 
 
-<p align="center"> KNOW THIS
+<p align="center"> KNOW THIS FOR PONYTOWN
 
 <p align="center"><sub>//all art on my strawpage belong to me 
   
