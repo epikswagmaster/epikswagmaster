@@ -16,7 +16,7 @@
   
   <sub>// i dont want to make friends with people under 15 or over 20
 
-<sub>// if you see me cosplaying as ena do not hesitate to uh maybe sit with me as coral glasses i want yuri 😁😁😁 same goes with my tobias/emilio cosplays from ghost eyes i want yaoi
+<sub>// im a huge ena x coral glasses shipper and dream bbq ena is my current fiction crush while the original ENA is one of my kins :D
 
 <img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
 
