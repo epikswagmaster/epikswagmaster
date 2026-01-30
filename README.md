@@ -12,7 +12,7 @@
   
   <sub>// c+h freely if im alone! i find it comforting 
 
-  <sub>// i allow some inspo, NOT copying! if your pony looks too much like mine, i might confront you albeit nervously
+  <sub>// i allow some inspo as long as your pony doesnt look too much like mine, but NOT copying!
   
   <sub>// i dont want to make friends with people under 15 or over 20
 
