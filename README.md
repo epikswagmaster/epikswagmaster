@@ -12,7 +12,7 @@
   
   <sub>// c+h freely if im alone! i find it comforting 
 
-  <sub>// do not copy mine ir anyones ponytown character unless they specifically allow it. i allow inspo only.
+  <sub>// do not copy mine or anyone's ponytown character unless they specifically allow it. i allow inspo only.
   
   <sub>// i dont want to make friends with people under 15 or over 20
 
