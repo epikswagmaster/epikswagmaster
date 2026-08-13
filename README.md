@@ -9,7 +9,7 @@
 
   
   
-  <sub>// c+h freely! i find it comforting 
+  <sub>// c+h is fine!
 
   <sub>// do not copy skins please unless they're very simple
   
