@@ -2,24 +2,21 @@
 
 
 
-[STRAWPAGE](https://epikswagmaster.straw.page)
+[commissions](rosebreezie.carrd.co)
 
 
-<p align="center"> KNOW THIS FOR PONYTOWN
+<p align="center"> PONYTOWN
 
-<p align="center"><sub>//all art on my strawpage belong to me 
   
   
-  <sub>// c+h freely if im alone! i find it comforting 
+  <sub>// c+h freely! i find it comforting 
 
-  <sub>// do not copy mine or anyone's ponytown character unless they specifically allow it. i allow inspo only.
+  <sub>// do not copy mine or anyone's ponytown character unless they specifically allow it, i allow inspo only.
   
-  <sub>// i dont want to make friends with people under 15 or over 20. small talk is fine.
+  <sub>// i dont want to make friends with people under 16 or over 20. small talk is fine.
 
 
 <img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
-
-<p align="center"><sub>check my strawpage for my interests & characters, doodle me something silly :]
 
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
