@@ -20,7 +20,8 @@
 
 <p align="center"> CHARACTERS
   
-most of them are on my art fight https://artfight.net/~execute
+most of them are on my art fight
+https://artfight.net/~execute/characters
 
   
 <!--
