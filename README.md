@@ -11,7 +11,7 @@
   
   <sub>// c+h is fine!
 
-  <sub>// do not copy skins please, inspo is fine, my limits are [here](ptskins.carrd.co)
+  <sub>// do not copy skins please, inspo is fine, my limits are [here](https://ptskins.carrd.co)
   
   <sub>// i dont want to make friends with people under 16 or over 20. small talk is fine
 
@@ -22,7 +22,7 @@
   
 most of them are on my [artfight](https://artfight.net/~execute/characters)
 
-I also do [commissions](rosebreezie.carrd.co)
+I also do [commissions](https://rosebreezie.carrd.co)
 
   
 <!--
