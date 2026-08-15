@@ -11,7 +11,7 @@
   
   <sub>// c+h is fine!
 
-  <sub>// do not copy skins please, inspo is fine, my limits are [here](https://ptskins.carrd.co)
+  <sub>// do not copy skins please, inspo is fine, but inspo has [it's limits](https://ptskins.carrd.co)
   
   <sub>// i dont want to make friends with people under 16 or over 19. small talk is fine
 
