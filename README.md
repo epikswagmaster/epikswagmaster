@@ -24,7 +24,7 @@ most of them are on my [artfight](https://artfight.net/~execute/characters)
 
 I also do [commissions](https://rosebreezie.carrd.co)
 
-  
+  Im a pretty chill guy but if you actually want to be friends i reccommend checking my [DNI](https://epikdni.carrd.co) first
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
