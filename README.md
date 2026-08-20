@@ -16,6 +16,8 @@
   <sub>// i dont want to make friends with people under 16 or over 19. small talk is fine
 
 
+<sub>// any skins named "CoS" stands for the game Creatures of Sonaria, NOT cosplay. COS or cos is cosplay, while CoS is specifically creatures of sonaria.
+
 <img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
 
 <p align="center"> CHARACTERS
