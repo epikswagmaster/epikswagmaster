@@ -13,8 +13,6 @@
 
   <sub>// do not copy skins please, inspo is fine, but inspo has [it's limits](https://ptskins.carrd.co)
   
-  <sub>// i dont want to make friends with people under 16 or over 21. small talk is fine
-
 
 <sub>// any skins named "CoS" stands for the game Creatures of Sonaria!
 PLEASE KNOW that COS/cos means cosplay, while CoS specifically, means Creatures of Sonaria.
