@@ -15,7 +15,6 @@
   
 
 <sub>// any skins named "CoS" stands for the game Creatures of Sonaria!
-PLEASE KNOW that COS/cos means cosplay, while CoS specifically, means Creatures of Sonaria
 
 <img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
 
