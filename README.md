@@ -25,7 +25,7 @@ I do art [commissions](https://rosebreezie.carrd.co)
 
 other info
 
-  <Sub>//i mainly only block those who copy my skins to prevent them from stealing my other ones, meaning i may block super similar skins
+  <Sub>//i mainly only block those who copy my skins to prevent them from stealing my other ones, that is the only reason i have ever hidden people
 
   <sub>//i dont pay much attention to fandom areas and usually sit where i want
 <!--
