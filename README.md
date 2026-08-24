@@ -24,7 +24,7 @@ most of my characters are on my [artfight](https://artfight.net/~execute/charact
 
 I do art [commissions](https://rosebreezie.carrd.co)
 
-  <Sub>//I mainly only block those who copy my skins to prevent them from stealing my other ones, meaning if you have a super similar skin, i may have blocked you to protect my creative peace! it means nothing but that!
+  <Sub>//I mainly only block those who copy my skins to prevent them from stealing my other ones, meaning if you have a super similar skin, i may have blocked you to protect my creative peace
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
