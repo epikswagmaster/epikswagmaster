@@ -9,12 +9,11 @@
 
   
   
-  <sub>// c+h is always fine! i often cuddle skins I like or those mentally unwell with cudcomf
-
-  <sub>// do not copy skins please, SOME inspo is fine
+  <sub>// c+h is always fine! i often cuddle skins I like or those with cudcomf
   
+<sub>// do not copy skins please, some inspo is fine
 
-<sub>// any skins named "CoS" stands for the game Creatures of Sonaria!
+  <sub>// any skins named "CoS" stands for the game Creatures of Sonaria
 
 <img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
 
@@ -24,8 +23,6 @@ most of my characters are on my [artfight](https://artfight.net/~execute/charact
 I do art [commissions](https://rosebreezie.carrd.co)
 
 other info
-
-  <Sub>//i mainly only block those who copy my skins to prevent them from stealing my other ones, that is the only reason i have ever hidden people
 
   <sub>//i dont pay much attention to fandom areas and usually sit where i want
 <!--
