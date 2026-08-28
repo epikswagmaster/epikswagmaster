@@ -9,7 +9,7 @@
 
   
   
-  <sub>// c+h is always fine! i sometimes even cuddle skins I like
+  <sub>// c+h is always fine! i often cuddle skins I like or those mentally unwell with cudcomf
 
   <sub>// do not copy skins please, SOME inspo is fine
   
