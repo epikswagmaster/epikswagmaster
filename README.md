@@ -5,26 +5,27 @@
 
 
 
-<p align="center"> PONYTOWN
+<p align="center">𓆩PONYTOWN𓆪
 
   
   
-  <sub>// c+h is always fine! i often cuddle skins I like or those with cudcomf
+ <p align="center"> <sub> c+h is always fine! i often cuddle skins I like or those with cudcomf 
+   // never copy my skins 
+   
+
+
+
+
+
+
+<p align="center"> 𓆩LINKS𓆪
   
-<sub>// do not copy skins please, some inspo is fine
+<p align="center">
+  <a href="artfight.net/~rosebreezie">characters</a> | <a href="epikswagmaster.atabook.org">atabook</a> | <a href="rosebreezie.carrd.co">art commissions</a>
+</p>
 
-  <sub>// any skins named "CoS" stands for the game Creatures of Sonaria
+![vamps](https://i.pinimg.com/1200x/13/68/8c/13688c2489f3f6f7ce7363ab77989bf3.jpg)
 
-<img align="center">![9121ce8f32f8293d67bee500aa74caae](https://github.com/user-attachments/assets/be4200c2-5009-4e31-9350-acc6cc7093a5)
-
-  
-most of my characters are on my [artfight](https://artfight.net/~execute/characters)
-
-I do art [commissions](https://rosebreezie.carrd.co)
-
-other info
-
-  <sub>//i dont pay much attention to fandom areas and usually sit where i want
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
