@@ -28,6 +28,9 @@
   <p align="center">
     <sub>
       animal jam, transformice, creatures of sonaria, ena dream bbq // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making </sub>
+    
+  
+  <sub> please DNI if you larp speaking European languages (German, danish, swedish, norwegian.) alot of people do this. i want to make friends with people who are ACTUALLY apart of my culture please stop pretending to be something you aren't. </sub>
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
