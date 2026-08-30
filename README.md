@@ -9,7 +9,7 @@
   
  <p align="center"> <sub> c+h is always fine! i often cuddle skins I like or those with cudcomf 
    // never copy my skins
-   // i instantly and permanently block people who i feel have any attitude towards me.
+   // i instantly and permanently block people who i feel have any attitude towards me. this goes from as big as an insult to as little as a response saying "ok". (respectful alternatives are okay, okkk, oki, etc.)
    
 
 
