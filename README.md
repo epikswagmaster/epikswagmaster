@@ -9,7 +9,7 @@
   
  <p align="center"> <sub> c+h is always fine! i often cuddle skins I like or those with cudcomf 
    // never copy my skins
-   // i instantly and permanently block people who i feel have even the slightest attitude towards me
+   // i instantly and permanently block people who i feel have any attitude towards me. I can distinguish tone through text
    
 
 
