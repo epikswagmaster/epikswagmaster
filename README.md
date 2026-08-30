@@ -1,4 +1,3 @@
-## <img cr=(https://github.com/user-attachments/assets/e5b2e987-b4fa-4fbc-b4da-50952b4061ad)>
 
 
 
@@ -21,11 +20,15 @@
 <p align="center"> 𓆩LINKS𓆪
   
 <p align="center">
-  <a href="https://artfight.net/~execute">characters</a> | <a href="https://epikswagmaster.atabook.org">atabook</a> | <a href="https://rosebreezie.carrd.co">art commissions</a>
+  <a href="https://artfight.net/characters/~execute">characters</a> | <a href="https://epikswagmaster.atabook.org">atabook</a> | <a href="https://rosebreezie.carrd.co">art commissions</a>
 </p>
 
 ![vamps](https://i.pinimg.com/1200x/13/68/8c/13688c2489f3f6f7ce7363ab77989bf3.jpg)
 
+<p align="center"> 𓆩INTERESTS𓆪
+  <p align="center">
+    <sub>
+      animal jam, transformice, creatures of sonaria, ena dream bbq // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making </sub>
 <!--
 **epikswagmaster/epikswagmaster** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
