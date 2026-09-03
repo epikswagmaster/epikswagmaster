@@ -9,7 +9,7 @@
   
  <p align="center"> <sub> c+h is always fine! i often cuddle skins I like or those with cudcomf 
    // never copy my skins
-   // OG headwing guy! i love seeing more headwings after making my vampire skin more noticed
+   // OG headwing guy! i love seeing all the headwings after making my vampire skin more noticed in 2024
    // more info on "pt-info"
    
 
