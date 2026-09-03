@@ -9,6 +9,7 @@
   
  <p align="center"> <sub> c+h is always fine! i often cuddle skins I like or those with cudcomf 
    // never copy my skins
+   // OG headwing guy! started trend in early 2024 by making my vamp skin noticed XD
    // more info on "pt-info"
    
 
