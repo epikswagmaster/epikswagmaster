@@ -29,7 +29,10 @@
 <p align="center"> 𓆩INTERESTS𓆪
   <p align="center">
     <sub>
-      animal jam, transformice, creatures of sonaria, ena dream bbq, warrior cats // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making </sub>
+      animal jam, transformice, creatures of sonaria, ena dream bbq, warrior cats // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making 
+      
+  <sub>// I do like Homestuck and other things, but I'm not that caught up on it. I have trouble getting into popular/overrated media
+  </sub>
     
 
 <!--
