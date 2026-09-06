@@ -29,7 +29,7 @@
 <p align="center"> 𓆩INTERESTS𓆪
   <p align="center">
     <sub>
-      animal jam, transformice, creatures of sonaria, ena dream bbq, warrior cats // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making // AVATAR (the blue creatures. the airbender anime is ass imo.)
+      animal jam, transformice, creatures of sonaria, ena dream bbq, warrior cats // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making // AVATAR (the blue creatures. I do not watch anime.)
     
 
 <!--
