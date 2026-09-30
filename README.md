@@ -7,7 +7,7 @@
 <p align="center">𓆩PONYTOWN𓆪
 
   
- <p align="center"> <sub> c+h is always fine! i often cuddle skins I like or those with cudcomf 
+ <p align="center"> <sub> c+h is always fine
    // never copy my skins
    
 
