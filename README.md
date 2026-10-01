@@ -29,6 +29,9 @@
   <p align="center">
     <sub>
       animal jam, transformice, creatures of sonaria, ena dream bbq, warrior cats // old music ( rock/metal ) from the 80's-90's, and more niche bands like KMFDM or And One // animation, character design and fursuit making // AVATAR (James Cameron), house m.d, and the very obvious MLP
+
+      
+  (psst, hey, Rick and Morty fans if you're reading, could you please stop completely engulfing the Turkish speaking area / language areas?)
     
 
 <!--
