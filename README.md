@@ -8,7 +8,7 @@
 
   
  <p align="center"> <sub> c+h is always fine
-   // never copy my skins, ask before taking inspo/an idea
+   // never copy my skins, ask before taking inspo/an idea // i rarely speak/interact first
    
 
 
