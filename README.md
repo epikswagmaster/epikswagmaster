@@ -8,7 +8,7 @@
 
   
  <p align="center"> <sub> c+h is always fine
-   // never copy anyone's skins // i rarely speak or interact first
+   // never copy skins // i rarely speak or interact first
    
 
 
