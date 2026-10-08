@@ -19,7 +19,8 @@
 <p align="center">
   
 <p align="center">
-  <a href="https://artfight.net/~execute/characters">characters</a> | <a href="https://epikswagmaster.atabook.org">atabook</a>
+  <a href="https://artfight.net/~execute/characters">characters</a> | <a href="https://epikswagmaster.atabook.org">atabook</a> |
+  <a href="https://artfight.net/~execute/attacks">attacks this year</a>
 
 ![vamps](https://i.pinimg.com/1200x/13/68/8c/13688c2489f3f6f7ce7363ab77989bf3.jpg)
 
