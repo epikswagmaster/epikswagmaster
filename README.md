@@ -7,7 +7,7 @@
 <p align="center">𓆩ponytown𓆪
 
   
- <p align="center"> <sub> c+h is always fine
+ <p align="center"> <sub> c+h is always fine im offtab alot
    // never copy skins // i rarely speak or interact first
    
 
