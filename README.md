@@ -24,4 +24,11 @@
 
 <p align="center"> 🕸️─────────🦇─────────🕸️
 
-
+<p align="Center">
+  
+  ![•](https://komarev.com/ghpvc/?username=epikswagmaster) 
+  
+  <sub>i judt got curious</sub>
+<div style="text-align: center;">(⁠⊙⁠_⁠◎⁠)</div>
+  
+  ![er](https://i.ibb.co/m5QcjkHD/Untitled376-20261008113446.png)
