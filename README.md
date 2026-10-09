@@ -14,8 +14,9 @@
 
 
 <p align="center"> 🕸️─────────🦇─────────🕸️
-  
 
-![views](https://komarev.com/ghpvc/?username=epikswagmaster) 
+  ![er](https://kidschat.net/upload/chat/user21_22a1a65ebc2a.png)
+
+![](https://komarev.com/ghpvc/?username=epikswagmaster) 
   
 <div style="text-align: center;">(⁠⊙⁠_⁠◎⁠)</div>
