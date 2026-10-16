@@ -15,3 +15,4 @@
 
 <p align="center"> 🕸️─────────🦇─────────🕸️
 
+other games i play are animal jam, transformice and creatures of sonaria. sometimes i play frontiers of pandora but i dont own a console.
