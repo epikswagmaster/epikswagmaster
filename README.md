@@ -15,11 +15,3 @@
 
 <p align="center"> 🕸️─────────🦇─────────🕸️
 
-  <p align="center">
-  <img src="https://kidschat.net/upload/chat/user21_22a1a65ebc2a.png" width="300" alt="Accessibility description" />
-</p>
-
-
-![](https://komarev.com/ghpvc/?username=epikswagmaster) 
-  
-<div style="text-align: center;">(⁠⊙⁠_⁠◎⁠)</div>
