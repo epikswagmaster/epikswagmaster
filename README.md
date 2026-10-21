@@ -17,4 +17,4 @@
 
 <p align="center">
 <img src="https://i.ibb.co/6zvptFP/Untitled381-20261018171202.png" alt="Project Screenshot" width="300">
-thanks to everyone who actually watched james camerons avatar because of me. i told u it was amazing.
+thanks to everyone who actually watched james camerons avatar i told u it was amazing.
