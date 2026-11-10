@@ -18,4 +18,4 @@
 
 <p align="Center">
    <a
-href="https://youtube.com/playlist?list=PLXLBxnL1e0Qo&si=wegdCEH8y7yKDLac"> MY AND ONE PLAYLIST</a>
+href="https://youtube.com/playlist?list=PLXLBxnL1e0Qo&si=wegdCEH8y7yKDLac">AND ONE PLAYLIST</a>
